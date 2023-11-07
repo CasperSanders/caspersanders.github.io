@@ -1,0 +1,83 @@
+# [Casper Sanders]
+
+
+## Summary
+
+Enthusiastic and results-oriented international business management student with a passion for developing and implementing strategic initiatives to drive business growth. Proven ability to lead and motivate teams, manage complex projects, and achieve ambitious goals. Eager to leverage skills and experience to contribute to the success of a dynamic organization.
+
+## Education
+
+**Payap University, Chiang Mai, Thailand**
+
+Bachelor of Science in International Business Management
+Expected Graduation: May 2024
+
+**Relevant Coursework:**
+* International Business Marketing
+* International Business Finance
+* International Business Law
+* Cross-Cultural Management
+* Global Supply Chain Management
+
+## Skills
+
+* Proficient in Microsoft Office Suite (Word, Excel, PowerPoint)
+* Strong analytical and problem-solving skills
+* Excellent communication and interpersonal skills
+* Fluent in English and Thai
+
+## Experience
+
+**Intern, Marketing Department, Siam Marketing Company, Bangkok, Thailand**
+
+May 2023 - Present
+
+* Conducted market research to identify new business opportunities
+* Developed marketing plans for new products and services
+* Created and executed social media campaigns
+* Managed marketing budgets
+* Tracked and analyzed marketing campaign results
+
+**Volunteer, Marketing Committee, Payap University Student Union**
+
+September 2022 - Present
+
+* Developed and implemented marketing campaigns for student events
+* Managed social media accounts for the Student Union
+* Created marketing materials, such as posters and brochures
+* Coordinated with other marketing committee members to ensure successful campaign execution
+
+## Projects
+
+**International Business Case Competition**
+
+First Place, April 2023
+
+* Led a team of four students to develop a business plan for a new international business venture
+* Presented the business plan to a panel of judges and won first place
+
+**Global Supply Chain Management Simulation**
+
+Team Leader, October 2022
+
+* Managed a team of four students in a global supply chain management simulation
+* Led the team to achieve the highest profit in the simulation
+
+## Awards and Honors
+
+* Dean's List, Payap University, 2022
+* President's List, Payap University, 2023
+* Recipient of the Payap University Scholarship, 2022-2023
+
+## Languages
+
+* English (Native)
+* Thai (Fluent)
+
+## Interests
+
+* Traveling
+* Photography
+* Hiking
+* Reading
+* Learning new languages
